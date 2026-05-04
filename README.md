@@ -5,14 +5,13 @@
 .🌊 revir ym si faeL gniyrC elkcusyenoH ehT  
 .👨‍👩‍👧‍👦 ebirt ym era spred ehT  
 .🐝 tramlaw ni gniviL  
-. bee  
-. bee  
-. bee  
+.👷 )deyolpmenu ma i( loohcs on ta rekrow ygolonhcet latigiD  
+.🦖 rehtaf ruoy ma I  
 ## Hello and welcome to my github page!
 
-.bee  
-.bee  
-.bee  
+.👷 I am unemployed  
+.🔭 I am interested in morse code and binary code  
+.📧 I make content on YouTube  
 
 <!--
 **breaktheschool/breaktheschool** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

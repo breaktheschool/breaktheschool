@@ -1,9 +1,9 @@
 ## !egap buhtig ym ot emoclew dna olleH
 
-.👋 gnihton rof sknahT
+.👋 gnihton rof sknahT  
 .🗻 niatnuom eht si etadpU  
 .🌊 revir ym si faeL gniyrC elkcusyenoH ehT  
-.👨‍👩‍👧‍👦 ebirt ym era spred ehT
+.👨‍👩‍👧‍👦 ebirt ym era spred ehT  
 .🐝 tramlaw ni gniviL  
 . bee  
 . bee  
